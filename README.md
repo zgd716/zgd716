@@ -15,6 +15,6 @@ Here are some ideas to get you started:
 
 🤔jellyzhang😄
 
-- 🔭 I’m currently working on ...
+
 
 
